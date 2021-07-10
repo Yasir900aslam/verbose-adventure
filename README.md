@@ -1,0 +1,1 @@
+Verbose-Adventure will take out the hard problems of designing CV from your professional, so you focus on the content not the design.
